@@ -1,0 +1,1 @@
+this weblog related to ecommerce
